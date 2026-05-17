@@ -5,7 +5,7 @@
 
 Cześć. 
 Nie spodziewałam się, że napisanie pierwszych słów nie będzie proste. 
-Chce przywitać Cię w moim zbiorze myśli. Często czułam, że brakuje mi zrozumienia, że znowu próbując się zwierzyć usłyszę:
+Chce przywitać Cię w moim zbiorze myśli. Często czułam, że brakuje mi zrozumienia, że znowu próbując się zwierzyć usłyszę: 
 
 *idź pobiegać*; 
 
